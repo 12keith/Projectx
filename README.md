@@ -1,2 +1,2 @@
 # Projectx
-yet to be conceptualizes
+yet to be conceptualized
